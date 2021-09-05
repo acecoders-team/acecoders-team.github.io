@@ -1,4 +1,4 @@
-# Melodify Copyright credits
+# Melodify Privacy Policy
 
 
 PRIVACY NOTICE
